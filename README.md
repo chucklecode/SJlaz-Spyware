@@ -36,7 +36,7 @@ REASONS WHY YOU HAVE TO BUY AND USE SJLAZ SPYWARE....
 This spyware will spy, scan and retrieve all available passwords, username, email and the service concerned with the informations
 
 
-JOIN OUR TELEGRAM CHANNEL NOT TO SEE HOW TO PURCHASE AND USE SJLAZ-SPYWARE AND OTHER HACKING SOFTWARES https://t.me/chucklecode
+JOIN OUR TELEGRAM CHANNEL TO SEE HOW TO PURCHASE AND USE SJLAZ-SPYWARE AND OTHER HACKING SOFTWARES https://t.me/chucklecode
 
 OR 
 
